@@ -1,1 +1,1 @@
-I still haven't received a reply from Devohn about the student status letter.
+Github rejected my status letter because it did not state that I was an online student.
